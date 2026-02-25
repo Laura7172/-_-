@@ -1,0 +1,1 @@
+https://github.com/Laura7172/-_-/blob/0de53499a3bb2e220480f7280fea30eed6ce31db/%D0%95%D1%80%D0%B0%D1%81%D1%8B%D0%BB%20%D0%90%D1%80%D0%BD%D2%B1%D1%80%20%D0%B4%D2%B1%D1%80%D1%8B%D1%81%D1%8B_.pdf 
